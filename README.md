@@ -1,0 +1,9 @@
+- 👋 Hi, I’m Samman Majgainya
+- 👀 I’m interested in Project Management, AI, and Digital Content Creation
+- 🌱 I’m currently learning Advanced Project Management Techniques and AI Bias Mitigation
+- 💞️ I’m looking to collaborate on AI-driven projects, Project Management initiatives, and content development in the tech space
+- 📫 How to reach me
+- Email: Sammanp03@gmail.com
+- LinkedIn: linkedin.com/in/samman-majgainya
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I’ve participated in multiple Model United Nations and enjoy exploring innovative solutions in both tech and diplomacy!
