@@ -7,4 +7,3 @@
 - LinkedIn: linkedin.com/in/samman-majgainya
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I’ve participated in multiple Model United Nations and enjoy exploring innovative solutions in both tech and diplomacy!
-- 
